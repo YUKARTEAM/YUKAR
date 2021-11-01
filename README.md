@@ -27,7 +27,7 @@
  
  
  
-# <p align="center" style="color:#cb3349" > [مبــرمـج دراكون](https://telegram.me/o_laii) <br>
+# <p align="center" style="color:#cb3349" > [مبرمج يوكار](https://telegram.me/o_laii) <br>
 
   
 
